@@ -47,7 +47,7 @@ I'm a **Computer Science & Engineering enthusiast focused on Artificial Intellig
 
 ## Connect With Me
 
-- **LinkedIn:** [Pranav A](www.linkedin.com/in/pranav-insight)
+- **LinkedIn:** www.linkedin.com/in/pranav-insight
 
 ---
 
